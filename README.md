@@ -1,7 +1,7 @@
 ---
 # 🌐 Nossa apresentação
 
-[CANVA](https://canva.link/q2f96ls65e6go4o)
+[Canva](https://canva.link/q2f96ls65e6go4o)
 ---
 # 🌐 Nosso Kahoot
 
